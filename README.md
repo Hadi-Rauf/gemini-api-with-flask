@@ -31,6 +31,6 @@ Sure, you can "contribute." Just remember, your code better be legendary, or pre
 
 Unless you have pizza or beer, don't bother. But hey, if you insist:
 
-* **WhatsApp:03283456348** (Only for emergencies involving pizza or beer)  *This phone number is real, please do not call just fucking text it.*
+* **WhatsApp:** **03283456348** (Only for emergencies involving pizza or beer)  *This phone number is real, please do not call just fucking text it.*
 * **Gmail:** mohammadhadirauf@gmail.com (Use with caution. Response times may vary from geological epochs to never.)
 
